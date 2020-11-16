@@ -5,3 +5,4 @@
 4. **Education**: Belarusian State Economic University, Economist, Accounting in Transport.
 5. **English level**: B1 (secondary school with English specialization since the first grade, English classes at the University, some own practice in everyday life).
 6. Regarding my  **Skills** and **Experience** I don't have some yet, cause I'm just at the beginning of my way. But I do really believe that such state of things will change soon.
+ 
